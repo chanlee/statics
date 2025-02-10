@@ -102,4 +102,4 @@ These Terms of Service establish the terms, conditions, procedures, and mutual r
 2. If a member does not agree to the amended terms, they may choose to withdraw their membership.
 
 Supplementary Provision
-These Terms of Service shall take effect from February 9, 2024.
+These Terms of Service shall take effect from February 9, 2025.
